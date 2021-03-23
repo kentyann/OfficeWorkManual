@@ -21,6 +21,8 @@
 ![切手代](img/mountain_background.png)
 [グラブル攻略](https://xn--bck3aza1a2if6kra4ee0hf.gamewith.jp/?from=115)
 
+[ウマ娘攻略](https://gamewith.jp/uma-musume/article/show/259587)最近はこっちも人気。
+
 ## 宅急便の発送について
 ## 電話、来客対応について
 ## ゴミ収集について
